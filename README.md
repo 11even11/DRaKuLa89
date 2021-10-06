@@ -7,3 +7,4 @@
 - 📫 How to reach me: infernowolf89@gmail.com or dm me @DRaKuLa#0011
 - 😄 Pronouns: He/Him
 
+https://lanyard-profile-readme.vercel.app/api/578243249450254349
